@@ -8,7 +8,7 @@ Outside the world of computer science, I'm specialized in brand identity design,
 
 
 #### Fun Facts:
-- Working to get a Mac.
+- Working to build a PC.
 - I like both tea and coffee.
 - In my off-time, I love spending time watching anime & sitcoms.
 
